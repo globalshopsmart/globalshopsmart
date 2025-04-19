@@ -20,4 +20,4 @@ Stay smart.
 **GlobalShopSmart.**
 
 ---
-*Follow our journey. Be part of the smart shopping revolution.*
+*Follow our journey. Be part of the smart shopping revolution.* 
